@@ -1,0 +1,1 @@
+# 8-Secrets-to-Earning-Free-Gold-in-Hearthstone
